@@ -1,2 +1,1 @@
-[No
-](https://classroom.dooble.pw/marked/)
+https://classroom.dooble.pw/marked/
